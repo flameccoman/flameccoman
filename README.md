@@ -3,9 +3,9 @@
 <h3 align="left"></h3>
 <p align="left">
 </p>
-https://flameccoman.atabook.org/ (my ata)
+https://flameccoman.atabook.org/ (My ata)
  
 
-https://vilvertstrawpage.straw.page/ (my strawpage)
+https://vilvertstrawpage.straw.page/ (My strawpage)
 
 ![Image](https://github.com/user-attachments/assets/8f23dcd2-ba88-48de-9ec9-39c35efaa4be)
