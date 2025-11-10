@@ -8,6 +8,6 @@ https://flameccoman.atabook.org/ (My ata)
 
 https://vilvertstrawpage.straw.page/ (My strawpage)
 
-![Image](https://github.com/user-attachments/assets/8f23dcd2-ba88-48de-9ec9-39c35efaa4be)
+![Image](https://github.com/user-attachments/assets/b59761d6-6610-4033-8404-19dcda08c7ea)
  
 (Gaster took over the README file for a bit, let that sink in!)
