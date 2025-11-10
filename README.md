@@ -7,3 +7,5 @@ https://flameccoman.atabook.org/ (my ata)
  
 
 https://vilvertstrawpage.straw.page/ (my strawpage)
+
+ https://media.tenor.com/BqWgj6qajGsAAAAi/gaster-wd-gaster.gif
