@@ -1,4 +1,4 @@
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=flameccoman&label=Flameccomanlings%20&color=0e75b6&style=flat" alt="flameccoman" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=flameccoman&label=Flameccomanlings%20&color=000000&style=flat" alt="flameccoman" /> </p>
 
 <h3 align="left"></h3>
 <p align="left">
