@@ -8,4 +8,4 @@ https://flameccoman.atabook.org/ (my ata)
 
 https://vilvertstrawpage.straw.page/ (my strawpage)
 
-![Image](https://github.com/user-attachments/assets/9b84549f-a7a4-4203-8aa7-bcb4cbbba89b)
+![Image](https://github.com/user-attachments/assets/8f23dcd2-ba88-48de-9ec9-39c35efaa4be)
