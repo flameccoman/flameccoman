@@ -4,7 +4,7 @@
 <p align="left">
 </p>
  
-Sign my [ata]([docs.github.com](https://flameccoman.atabook.org/))
+Sign my [Ata]([docs.github.com](https://flameccoman.atabook.org/))
  
 https://vilvertstrawpage.straw.page/ (My strawpage)
  
