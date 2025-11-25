@@ -3,9 +3,7 @@
 <h3 align="left"></h3>
 <p align="left">
 </p>
-Sign my [ata](https://flameccoman.atabook.org/)
- 
-
+Sign my [Ata]https://flameccoman.atabook.org/
 https://vilvertstrawpage.straw.page/ (My strawpage)
  
 ![Image](https://github.com/user-attachments/assets/ce5a6eef-5305-42e8-a20c-35c1fad762a1)
