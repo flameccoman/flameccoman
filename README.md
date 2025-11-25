@@ -8,6 +8,6 @@ https://flameccoman.atabook.org/ (My ata)
 
 https://vilvertstrawpage.straw.page/ (My strawpage)
  
-![Image](https://github.com/user-attachments/assets/56f3536e-4bd2-4d08-944a-51f960d97854)
+![Image](https://github.com/user-attachments/assets/ce5a6eef-5305-42e8-a20c-35c1fad762a1)
  
 Call me vilvert/vilgert!
