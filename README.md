@@ -8,7 +8,7 @@ Sign my [Ata](https://flameccoman.atabook.org/)
  
 Check out my [strawpage!](https://vilvertstrawpage.straw.page/)
 
-Decorate my [tree🎄...](https://colormytree.me/2025/01KBFHYQ14H40APCYD27KBP34M)
+Decorate my [tree🎄](https://colormytree.me/2025/01KBFHYQ14H40APCYD27KBP34M)
 
 
 ![Image](https://github.com/user-attachments/assets/62fd7a80-89b5-490c-96be-bbd92d900da8)
