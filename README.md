@@ -8,6 +8,6 @@ Sign my [Ata](https://flameccoman.atabook.org/)
  
 Check out my [strawpage!](https://vilvertstrawpage.straw.page/)
  
-![Image](https://github.com/user-attachments/assets/ce5a6eef-5305-42e8-a20c-35c1fad762a1)
+![Image](https://github.com/user-attachments/assets/62fd7a80-89b5-490c-96be-bbd92d900da8)
  
 Call me vilvert/vilgert!
