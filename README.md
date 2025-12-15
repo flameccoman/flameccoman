@@ -4,7 +4,7 @@
 <p align="left">
 </p>
  
-[Ata](https://flameccoman.atabook.org/)  [strawpage](https://vilvertstrawpage.straw.page/)  [tree🎄](https://colormytree.me/2025/01KBFHYQ14H40APCYD27KBP34M)
+[Ata](https://flameccoman.atabook.org/)  [Strawpage](https://vilvertstrawpage.straw.page/)  [Tree🎄](https://colormytree.me/2025/01KBFHYQ14H40APCYD27KBP34M)
  
  ![Image](https://github.com/user-attachments/assets/53bedb69-eac4-4961-9aaa-bc1e2b958ccc)
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/8a41a70e-aaae-448b-9a2c-85d90c64a258" />
