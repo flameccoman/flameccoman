@@ -22,3 +22,5 @@
 ![Image](https://github.com/user-attachments/assets/83b6f7cb-7343-4e4d-b86d-702fc38ff798)
  
 diagnosed with: astigmatism
+
+<img width="394" height="709" alt="Image" src="https://github.com/user-attachments/assets/7e4c3585-d3ab-4701-a1dd-696a2c9a124a" />
