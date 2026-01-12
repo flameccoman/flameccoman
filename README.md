@@ -20,7 +20,5 @@
 ![Image](https://github.com/user-attachments/assets/1b3e4628-192e-4ade-ab17-159ceb3d9a89)
 ![Image](https://github.com/user-attachments/assets/67ec9620-8f4d-49fe-8b5f-f8009270b756)
 ![Image](https://github.com/user-attachments/assets/83b6f7cb-7343-4e4d-b86d-702fc38ff798)
-![Image](https://github.com/user-attachments/assets/af576331-0d30-4ed2-9192-7ecce97d4006)
-
-
-diagnosed with: astigmatism(which is unfortunate)
+ 
+diagnosed with: astigmatism
