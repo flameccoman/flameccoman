@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B757D0&width=435&lines=hi!+call+me+vilvert%2Fvilgert;sign+my+guest+book;do+not+be+afraid+to+walk+up+to+me;I'm+very+talkative;anyways%2C+what+was+I+talking+about..%3F;oh+yeah%2C+right%2C+about+myself!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+code&pause=1000&color=B06FC8&width=435&lines=Hi!+call+me+flam;sign+my+guestbook;I+yap(sometimes+a+lot);I'm+talkative;this+repository+gets+updates;(if+I+feel+like+it);anyways%2C+what+was+I+talking+about...%3F;oh+yeah%2C+right%2C+about+myself!)](https://git.io/typing-svg)
   
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=flameccoman&label=Flameccomanlings%20&color=7b0c83&style=flat" alt="flameccoman" /> </p>
 
@@ -12,3 +12,15 @@
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/8a41a70e-aaae-448b-9a2c-85d90c64a258" />
 ![Image](https://github.com/user-attachments/assets/1d9213e3-2db5-4678-9331-4dbc44190d37)
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/03eaee5b-5bd9-4527-8ff4-f1ac3e4d63a6" />
+
+<img width="155" height="131" alt="Image" src="https://github.com/user-attachments/assets/80c35a31-9600-4c6a-a66b-641ea0a439d0" />
+
+![Image](https://github.com/user-attachments/assets/e52d3a84-af33-4c1a-b01e-0c6f7ee5997c)
+![Image](https://github.com/user-attachments/assets/7189a3cf-a90b-4c86-a066-f40eeb4d659c)
+![Image](https://github.com/user-attachments/assets/1b3e4628-192e-4ade-ab17-159ceb3d9a89)
+![Image](https://github.com/user-attachments/assets/67ec9620-8f4d-49fe-8b5f-f8009270b756)
+![Image](https://github.com/user-attachments/assets/83b6f7cb-7343-4e4d-b86d-702fc38ff798)
+![Image](https://github.com/user-attachments/assets/af576331-0d30-4ed2-9192-7ecce97d4006)
+
+
+diagnosed with: astigmatism(which is unfortunate)
