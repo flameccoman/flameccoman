@@ -13,7 +13,7 @@
 ![Image](https://github.com/user-attachments/assets/1d9213e3-2db5-4678-9331-4dbc44190d37)
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/03eaee5b-5bd9-4527-8ff4-f1ac3e4d63a6" />
 
-![Image](https://github.com/user-attachments/assets/dc7b3663-eb1d-48d1-9b94-4896ee37292a)
+<img width="155" height="131" alt="Image" src="https://github.com/user-attachments/assets/dc7b3663-eb1d-48d1-9b94-4896ee37292a" />
 
 
 ![Image](https://github.com/user-attachments/assets/e52d3a84-af33-4c1a-b01e-0c6f7ee5997c)
