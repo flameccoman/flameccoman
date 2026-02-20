@@ -6,7 +6,7 @@
 <p align="left">
 </p>
  
-[Ata](https://flameccoman.atabook.org/) - [Strawpage](https://flamstrawpage.straw.page/)
+[Ata](https://flameccoman.atabook.org/) - [My own website]([https://flamstrawpage.straw.page/](https://flameccoman.neocities.org/))
  
  ![Image](https://github.com/user-attachments/assets/53bedb69-eac4-4961-9aaa-bc1e2b958ccc)
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/8a41a70e-aaae-448b-9a2c-85d90c64a258" />
