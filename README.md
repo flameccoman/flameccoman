@@ -1,6 +1,6 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+code&pause=1000&color=B06FC8&width=435&lines=Hi!+call+me+flam;sign+my+guestbook;I+yap(sometimes+a+lot);I'm+talkative;this+repository+gets+updates;(if+I+feel+like+it);anyways%2C+what+was+I+talking+about...%3F;oh+yeah%2C+right%2C+about+myself!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=D4D4D4D7&width=435&lines=hello!+im+flam;first%2C+i'd+love+to+see+ya+check+out;my+website!;second+of+all%2C+if+you+wish;you+can+leave+me+a+nice;guest+book+message!;third+of+all%2C;i+hope+you're+having+a+good+day!;anyways...)](https://git.io/typing-svg)
   
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=flameccoman&label=Flameccomanlings%20&color=7b0c83&style=flat" alt="flameccoman" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=flameccoman&label=Flameccomanlings%20&color=9a9a9a&style=flat" alt="flameccoman" /> </p>
 
 <h3 align="left"></h3>
 <p align="left">
