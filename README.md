@@ -8,17 +8,12 @@
  
 [Ata](https://flameccoman.atabook.org/) - [My own website](https://flameccoman.neocities.org/)
  
- ![Image](https://github.com/user-attachments/assets/53bedb69-eac4-4961-9aaa-bc1e2b958ccc)
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/8a41a70e-aaae-448b-9a2c-85d90c64a258" />
-![Image](https://github.com/user-attachments/assets/1d9213e3-2db5-4678-9331-4dbc44190d37)
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/03eaee5b-5bd9-4527-8ff4-f1ac3e4d63a6" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/e809f8f6-3dc1-4aa6-9160-6328858e438a" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c0aecabb-5d10-4af0-8006-e687aa01c85d" />
-
-<img width="155" height="131" alt="Image" src="https://github.com/user-attachments/assets/dc7b3663-eb1d-48d1-9b94-4896ee37292a" />
+![Image](https://github.com/user-attachments/assets/7bf58029-f296-4bcb-8540-863d794bbb41)<img width="99" height="57" alt="Image" src="https://github.com/user-attachments/assets/af8e45ec-eaa2-44cd-878c-cc5d57ecd33a" />![Image](https://github.com/user-attachments/assets/d078a083-3d40-425e-b0ce-9caf6b894c91)
 
 
-![Image](https://github.com/user-attachments/assets/e52d3a84-af33-4c1a-b01e-0c6f7ee5997c)
+![Image](https://github.com/user-attachments/assets/229097a2-f55b-4aba-9331-9602d9f565b8)
+
+
 ![Image](https://github.com/user-attachments/assets/7189a3cf-a90b-4c86-a066-f40eeb4d659c)
 ![Image](https://github.com/user-attachments/assets/1b3e4628-192e-4ade-ab17-159ceb3d9a89)
 ![Image](https://github.com/user-attachments/assets/67ec9620-8f4d-49fe-8b5f-f8009270b756)
